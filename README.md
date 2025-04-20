@@ -3,9 +3,9 @@
 Cloaked in <em>bubblegum</em> , taste <strong>sweet</strong> and last so <strong>long</strong> .
   You know I want it , <strong><em>you know I want it .</em></strong>
 </p>
-<img src="https://i.postimg.cc/P5KZmW8f/Untitled48-20250111235119.png" />
+<img src="https://i.postimg.cc/9Q18tW0R/artwork-batbros-by-robinbw1964-v0-a3gz4tv6pu5e1.jpg" />
 <p align="right">
-<sup>art credit: @frewazxc on twitter</sup>
+<sup>art credit: @RobinBW1964 on reddit</sup>
 </p>
 
 <br>
