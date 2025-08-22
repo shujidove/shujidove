@@ -1,24 +1,31 @@
-# 🍓 Shujidove .
 <p align="center">
-Cloaked in <em>bubblegum</em> , taste <strong>sweet</strong> and last so <strong>long</strong> .
-  You know I want it , <strong><em>you know I want it .</em></strong>
+# 🐑 .
 </p>
-<img src="https://i.postimg.cc/9Q18tW0R/artwork-batbros-by-robinbw1964-v0-a3gz4tv6pu5e1.jpg" />
+<p align="center">
+—————; ;—————
+</p>
+<p align="center">
+At least I know what I've <em><strong>seen</strong></em>, these horns run through my <em><strong>family</strong></em>.
+</p>
+<img src="https://i.postimg.cc/RZXN5k0R/df3b60a6-b449-4755-9a71-51a19606663b.jpg" />
 <p align="right">
-<sup>art credit: @RobinBW1964 on reddit</sup>
+<sup>art credit: @dialm4spooky on X/Twitter</sup>
 </p>
 
 <br>
 
 <p align="center">
-You can call me <em>Toasty</em> or <strong>Shuji</strong>, as I use those most. <ins>Seraph</ins> and <ins>Masozi</ins> are also some names I use.
+<em>Toasty</em> / <strong>Shuji</strong>
 </p>
 <p align="center">
-  I use he/him and ey/em pronouns. I don't mind they/them but I don't prefer it.
+ he/him + ey/em pronouns. I don't mind they/them but I don't prefer it.
 </p>
 <p align="center">
- When I have any sort of DNI on PT, c+h is still allowed! I don't bite. I'm afk/offtab often so you may whisper if you want to make sure I don't miss your message! I also take time to respond so responses will be slow
+ C+H always allowed and encouraged! I'm offtab/afk often so whisper me if it's important!
 </p>
 <p align="center">
-I make sexual and suicide jokes so do tell me if you're uncomfortable so I will stop doing them around you. I don't mind any ships, as I don't see them very important when interacting. However, if you force your ship in my face, I will ask you to stop. I don't do RPs, please ask before you RP with me (unless you're my friend and it's a joke RP).
+—————; ;—————
+</p>
+<p align="center">
+She understands me <em>like you did</em>, she really <strong><em>loathes</em></strong>.
 </p>
