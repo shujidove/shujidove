@@ -23,7 +23,7 @@ I saw the sun in your eyes, I saw the sun in your eyes.
 </p>
 <br>
 <p align="center">
- <a href="https://rentry.co/shujidove">rentry</a> 𖥔 ݁ ˖ <a href="https://rentry.co/watereddroplets">rentry²</a> 𖥔 ݁ ˖ <a href="https://shujidove.carrd.co/">carrd</a> 𖥔 ݁ ˖ <a href="https://ventriloquist-oc.straw.page/">tfc oc strawpage</a> 𖥔 ݁ ˖ <a href="https://en.pronouns.page/@Shujidove">pronouns</a> 𖥔 ݁ ˖ <a href="https://lupinviolence.atabook.org/">atabook</a>
+ <a href="https://rentry.co/shujidove">rentry</a> 𖥔 ݁ ˖ <a href="https://rentry.co/ger-ita-pan">shared rentry <3</a> 𖥔 ݁ ˖ <a href="https://shujidove.carrd.co/">carrd</a> 𖥔 ݁ ˖ <a href="https://ventriloquist-oc.straw.page/">tfc oc strawpage</a> 𖥔 ݁ ˖ <a href="https://en.pronouns.page/@Shujidove">pronouns</a> 𖥔 ݁ ˖ <a href="https://lupinviolence.atabook.org/">atabook</a>
 </p>
 <br>
 <p align="center">
