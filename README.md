@@ -23,7 +23,7 @@ $\color{#C4E1E7}{Toasty}$ / $\color{#A09DB2}{Shuji}$
 </p>
 <br>
 <p align="center">
- <a href="https://rentry.co/timsdove">rentry</a> 𖥔 ݁ ˖ <a href="https://rentry.co/ger-ita-pan">shared rentry <3</a> 𖥔 ݁ ˖ <a href="https://shujidove.carrd.co/">carrd</a> 𖥔 ݁ ˖ <a href="https://shudove.straw.page/">strawpage</a> 𖥔 ݁ ˖ <a href="https://ventriloquist-oc.straw.page/">tfc oc strawpage</a> 𖥔 ݁ ˖ <a href="https://pronouns.cc/@jaysbullet">pronouns</a> 𖥔 ݁ ˖ <a href="https://lupinviolence.atabook.org/">atabook</a>
+ <a href="https://rentry.co/shujidove">rentry</a> 𖥔 ݁ ˖ <a href="https://rentry.co/ger-ita-pan">shared rentry <3</a> 𖥔 ݁ ˖ <a href="https://shujidove.carrd.co/">carrd</a> 𖥔 ݁ ˖ <a href="https://shudove.straw.page/">strawpage</a> 𖥔 ݁ ˖ <a href="https://ventriloquist-oc.straw.page/">tfc oc strawpage</a> 𖥔 ݁ ˖ <a href="https://pronouns.cc/@jaysbullet">pronouns</a> 𖥔 ݁ ˖ <a href="https://lupinviolence.atabook.org/">atabook</a>
 </p>
 <br>
 <p align="center">
